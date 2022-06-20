@@ -1,5 +1,5 @@
 # script TOGEL BRUTFORCE
-# CODE BY MRX ( WASTU INDRA BUDI)
+# CODE BY MRX ( )
 # we sampi tukang togel 
 # togel tidak menjadikan anda kaya>>>> kerja woy jangan ngimpi........
 
